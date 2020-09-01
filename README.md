@@ -1,1 +1,1 @@
-# Computing-Project-Thingy
+# Not School-related
